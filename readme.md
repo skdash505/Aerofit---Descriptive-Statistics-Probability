@@ -1,1 +1,1 @@
-[embed]https://github.com/skdash505/Aerofit-Descriptive-Statistics-Probability/blob/Development/Aerofit%20Final%20Submission.pdf[/embed]
+[embed]https://drive.google.com/file/d/16yFWrUFys-_073J_reHNtb2hcsmgwerM/view?usp=drive_link[/embed]
